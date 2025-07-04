@@ -1,4 +1,4 @@
-### Hi there / Ciao a tutti👋
+### Hi there👋
 ### 🔭 I’m currently working on getting better at coding
 ### 📫 How to reach me: valemax.moretti@gmail.com
 ### that's it -  have a great day
